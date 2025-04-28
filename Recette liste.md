@@ -18,7 +18,7 @@
 
 [Blondie](https://www.smalltownwoman.com/wprm_print/easy-blondies-recipe)
 
-[Brownie](https://bakerbynature.com/wprm_print/the-best-cocoa-fudge-brownies)
+[Brownie](https://bakerbynature.com/wprm_print/the-best-cocoa-fudge-brownies) (ajouté des noix de pecan concassé)
 
 [Oreo Brownie](https://bakerbynature.com/wprm_print/the-best-cocoa-fudge-brownies)Suivre [Brownie] mais changé les noix par des oreos concassé.
 
