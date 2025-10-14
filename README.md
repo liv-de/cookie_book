@@ -28,4 +28,8 @@
 
 [Sablé souflé au fromage](https://mesbrouillonsdecuisine.fr/biscuits-apero-fromage-et-graines-de-sesame/)
 
+## Brioche
+[Cinnamon Rools](https://www.beeyondcereal.com/small-batch-cinnamon-rolls/)
+
+
 
