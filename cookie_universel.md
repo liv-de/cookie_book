@@ -5,7 +5,7 @@
 - **100 g** de chocolat (ou noix, noix de cajou, mélange 3 chocolats…)
 - **1/2 cc** de bicarbonate
 - **1/2 cc** de levure chimique
-- **1/2 cc** de sel
+- **une pincée** de sel
 - **150 g** de farine
 - **1 sachet** de sucre vanillé (ou extrait de vanille)
 - **1 œuf**
