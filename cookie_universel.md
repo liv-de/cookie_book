@@ -1,5 +1,5 @@
-🍪 Recette de Cookies universel
-Ingrédients :
+🍪 Cookies – Recette
+🧾 Ingrédients
 
 100 g de chocolat (ou noix, noix de cajou, mélange 3 chocolats…)
 1/2 cc de bicarbonate
@@ -12,17 +12,25 @@ Ingrédients :
 50 g de beurre mou
 
 
-Préparation :
+👩‍🍳 Préparation
 
 Malaxer le beurre avec la cassonade (au fouet électrique).
 Ajouter l’œuf et fouetter de nouveau.
 Ajouter la farine, le sel, la levure, le bicarbonate et le chocolat.
 Mélanger à la cuillère en bois jusqu’à obtenir une pâte homogène.
-Former un boudin de taille régulière.
-Laisser reposer la pâte 30 min au congélateur (ou 1 h au réfrigérateur).
+Former un boudin de pâte régulier.
+Laisser reposer :
+
+30 min au congélateur, ou
+1 h au réfrigérateur.
+
+
 Préchauffer le four à 180°C.
-Couper des tranches de 1 à 1,5 cm d’épaisseur.
-Déposer les tranches sur une plaque de cuisson.
-Enfourner 10 min à 180°C
-(même si les cookies semblent légèrement mous, il faut les sortir : ils durciront en refroidissant).
-Laisser refroidir sur la plaque.
+Couper le boudin en tranches de 1 à 1,5 cm d’épaisseur.
+Disposer les tranches sur une plaque de cuisson.
+Enfourner 10 min à 180°C.
+
+Même si les cookies semblent mous, les sortir : ils durciront en refroidissant.
+
+
+Laisser refroidir directement sur la plaque.
