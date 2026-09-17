@@ -32,5 +32,5 @@
 ## Brioche
 [Cinnamon Rools](https://www.beeyondcereal.com/small-batch-cinnamon-rolls/)
 
-
-
+## Muffins/Cupcake
+[Muffins vegan](https://shirleycooking.com/super-moist-vanilla-cupcakes--no-egg-no-milk-no-butter-cake/)
