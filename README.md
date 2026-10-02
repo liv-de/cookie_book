@@ -15,6 +15,8 @@
 
 [Sablé](https://www.750g.com/petits-sables-r23034.htm)
 
+[Cookie Cinnamon Rools](https://thefoodcharlatan.com/wprm_print/the-best-cinnamon-cookie-recipe)
+
 ## Brownies
 
 [Brookie](https://freshbeanbakery.com/wprm_print/17686)
